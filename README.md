@@ -40,13 +40,13 @@ X-Khronos就是时间戳
 随时可以找我测试！！！！！免费
 
 
-本人飞机telegra:@dy_algorithm
+本人飞机telegra:@dy_dycods
 
 
-本人飞机telegra:@dy_algorithm
+本人飞机telegra:@dy_dycods
 
 
-本人飞机telegra:https://t.me/dy_algorithm
+本人飞机telegra:https://t.me/dy_dycods
 
 
 
